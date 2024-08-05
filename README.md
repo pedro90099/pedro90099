@@ -1,16 +1,15 @@
-## Hi there 👋
+Opa aqui e o Pedro e isso eu acho
 
-<!--
-**pedro90099/pedro90099** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- penso em ser lutador profisional de boxe ou mma 
 
-Here are some ideas to get you started:
+- faço malabares 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- to aprendendo a tocar violão 
+
+bom e isso 
+
+**dias de lutas e dias de glória**
+
+                           charlie brown jr
+
+![image](https://github.com/user-attachments/assets/43252dee-0336-47a1-af96-940b0cf83cfe)
